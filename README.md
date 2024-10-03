@@ -20,6 +20,6 @@ Wave to earth is a South Korean indie rock band. The band currently consists of 
 for the people who has a is struggling in love, the people who can't admit his/her feelings on someone else. And this song can relate many people. This song is like a meditation and a very calming song. And it reliefs my stress somehow. And for me my favorite song to wave to earth is the
 "**ride**". This song is pretty good especially when you wake up in the morning and you eat your breakfast while listening to this song.
 
- ![alt text](https://th.bing.com/th/id/OIP.NSMA-XjOblVDfyPi8dyEQQHaI3?w=150&h=180&c=7&r=0&o=5&pid=1.7)
+ ![alt text](https://th.bing.com/th/id/OIP.NSMA-XjOblVDfyPi8dyEQQHaI3?w=150&h=180&c=7&r=0&o=5&pid=1.7)  ![alt text](https://th.bing.com/th/id/OIP.2PnZMWNap83jgfNstT_L9QHaD4?w=321&h=180&c=7&r=0&o=5&pid=1.7)
 This is takayoshi, an underrated song writer based on my thoughts. His songs is all about for person who has going through something: Stress, problems or love life. If you are interested to his music I think for me it would be quite dramatic but overall he is so good.
 And plus, I don't know when did he start to make his first song because he is so underrate and not that famous. But for me I think his first song is "on your mind", and I love it.
